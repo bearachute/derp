@@ -5,3 +5,5 @@
 :pizza:
 
 (that emoji isn't right i bet)
+
+silly things amuse me.
